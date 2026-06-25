@@ -4,4 +4,4 @@
 
 A Full-Stack Software Engineer passionate about using technology to create things that make a difference.
 
-❤️ Passionate about community, open source, and continuous learning.
+❤️ Inspired by open source, community, and lifelong learning.
